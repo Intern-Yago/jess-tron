@@ -1,0 +1,1 @@
+# syri-yagowo.github.io
